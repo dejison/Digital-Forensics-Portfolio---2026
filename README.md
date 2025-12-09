@@ -13,4 +13,4 @@
 - CV/
 
 ## Contact
-your.email@example.com | linkedin.com/in/yourprofile
+dejison@yahoo.co.uk | www.linkedin.com/in/oladimeji-sam
